@@ -211,4 +211,4 @@ SainT is provided as a complete free version with all features and updates inclu
 Don't miss out on the chance to dive back into the golden age of gaming. **Download SainT today and start playing your favorite Atari-ST classics!**
 
 ---
-**Last updated:** 2026-09-26 21:41:32 UTC
+**Last updated:** 2026-09-27 00:00:13 UTC
